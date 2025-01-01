@@ -1,4 +1,4 @@
-### **Data Science | Machine Learning | Deep Learning | Data Analysis | Visualization**.<br> Expert in crafting predictive models, uncovering insights, and solving problems
+### **Data Science | Machine Learning | Deep Learning | Data Analysis | Visualization**.<br> Crafting predictive models, uncovering insights, and solving problems
 
 
 ## 🌐 Socials:
